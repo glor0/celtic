@@ -9,4 +9,4 @@ Bodhran Pawła "Kruszyny" Rewuckiego najłatwiej znależć w nagraniach [Celtic 
 
 A to jeszcze raz Łukasz, tym razem z akordeonem zamiast banjo, i próbka [muzyki bretońskiej](https://youtu.be/TorBgbTYaK0?si=NwH3q5lITAobiBf8){:target="_blank"}
 
-Jeśli chcesz zaprosić naprawdę dobry skład na imprezę folkową, muzyczną, żeglarską, to skontaktuj się z ###.
+Jeśli chcesz zaprosić naprawdę dobry skład na imprezę folkową, muzyczną, żeglarską, to [napisz](mailto:luk.potoczny@gmail.com)!

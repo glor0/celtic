@@ -1,7 +1,7 @@
 **Zespół Glór to fantastycznie wykonany folk irlandzki, szkocki i bretoński**, a do tego mnóstwo wiedzy o kulturze celtyckiej i wiele lat doświadczenia scenicznego.
-Najłatwiej spotkać ich na żywo w co drugą środę na sesji irlandzkiej w Tawernie Pod Kilem we Wrocławiu na Mikołaja, a kilka razy w roku - na polskich i czeskich imprezach folkowych.
+Najłatwiej spotkać ich na żywo w co drugą środę na sesji irlandzkiej w Tawernie Pod Kilem we Wrocławiu na ul. Mikołaja, a kilka razy w roku - na polskich i czeskich imprezach folkowych.
 
-* Mała próbka zespołu [Glór w komplecie](https://youtu.be/oby8ulUbRpw?si=V5QAVamV4ZwnPdAO&t=8){:target="_blank"}
+* Mała próbka zespołu Glór - [Boys of Malin](https://youtu.be/oby8ulUbRpw?si=V5QAVamV4ZwnPdAO&t=8){:target="_blank"}
 
 * Łukasz Potoczny, czyli banjo z Glóra i [kawałek bluegrassowy](https://youtu.be/XuD6_SkcDDU?si=cYJRZvBn9caXXM9O){:target="_blank"}
 

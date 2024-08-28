@@ -18,4 +18,4 @@ Najłatwiej spotkać ich na żywo w co drugą środę na sesji irlandzkiej w Taw
 
 * A to jeszcze raz Łukasz, tym razem z akordeonem zamiast banjo, i trochę [muzyki bretońskiej](https://youtu.be/TorBgbTYaK0?si=NwH3q5lITAobiBf8){:target="_blank"}
 
-**Jeśli chcesz zaprosić naprawdę dobry skład na imprezę folkową, muzyczną, żeglarską, to [napisz](mailto:luk.potoczny@gmail.com)!**
+**Jeśli chcesz zaprosić naprawdę dobry skład na imprezę folkową, muzyczną, żeglarską, to [napisz](mailto:contact@glor.com.pl)!**

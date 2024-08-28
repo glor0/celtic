@@ -1,5 +1,5 @@
 <!-- ![logo](logo_glor2.svg) -->
-<img src="logo_glor2.svg" width="300" height="300">
+<img src="logo_glor2.svg" width="300" height="300" class="center">
 
 
 **Zespół Glór to fantastycznie wykonany folk irlandzki, szkocki i bretoński**, a do tego mnóstwo wiedzy o kulturze celtyckiej i wiele lat doświadczenia scenicznego.

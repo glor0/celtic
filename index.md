@@ -8,7 +8,7 @@ Najłatwiej spotkać ich na żywo w co drugą środę na sesji irlandzkiej w Taw
 
 * Mała próbka zespołu Glór - [Boys of Malin](https://youtu.be/oby8ulUbRpw?si=V5QAVamV4ZwnPdAO&t=8){:target="_blank"}
 
-* Glór na czeskim festiwalu Na hradbách 2023 w towarzystwie tancerek z [Irish Spin](https://taniec-irlandzki.wroclaw.pl/){:target="_blank"} - [cały koncert](https://youtu.be/ylhBMfSsrPw?si=N2QBnMMqoj7NzZeY){:target="_blank"}
+* Glór w towarzystwie tancerek z [Irish Spin](https://taniec-irlandzki.wroclaw.pl/){:target="_blank"} na czeskim festiwalu Na hradbách 2023 - [cały koncert](https://youtu.be/ylhBMfSsrPw?si=N2QBnMMqoj7NzZeY){:target="_blank"}
 
 * Łukasz Potoczny, czyli banjo z Glóra i [kawałek bluegrassowy](https://youtu.be/XuD6_SkcDDU?si=cYJRZvBn9caXXM9O){:target="_blank"}
 
